@@ -10,6 +10,8 @@ This design has superior Strength Characteristics! and will NOT bend or crack fr
 
 [16-240 mm² Cable Connector Hydraulic Crimping Tool HP-240C](https://youtu.be/ul5IFxXZZFU)
 
+https://www.walmart.com/ip/Costway-16-Ton-Hydraulic-Wire-Terminal-Crimper-Battery-Cable-Lug-Crimping-Tool-w-Dies/668870231
+
 ## C die holder
 [HIT Tools Hydraulic Crimping Tool](https://youtu.be/6CAN_75ul_o)
 
