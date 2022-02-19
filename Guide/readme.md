@@ -16,3 +16,6 @@ https://www.youtube.com/results?search_query=make+your+own+parking+brake+cable
 [https://youtu.be/iEflhdrQp3U](https://youtu.be/iEflhdrQp3U)
 
 [How To: Use a Hand Swage Tool To Crimp Ferrules On Wire Balustrade | HAMMERSMITH](https://youtu.be/3To3xHKcTjc)
+
+### Top!
+[How To: Use a Hydraulic Swage Tool To Crimp Stainless Wire Balustrade Fittings | HAMMERSMITH](https://youtu.be/an7nmb3cjJ4)
