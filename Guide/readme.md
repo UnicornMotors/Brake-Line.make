@@ -6,5 +6,9 @@ https://www.youtube.com/results?search_query=make+your+own+parking+brake+cable
 
 [How To Fabricate Parking Brake Cables #FairmontProject](https://youtu.be/YeyaFW1CFPY)
 
-## Stop Sleeve
+# Stop Sleeve
+## sch:
+https://www.google.com/search?q=stop+sleeve
+
+## Guide
 [https://youtu.be/iEflhdrQp3U](https://youtu.be/iEflhdrQp3U)
