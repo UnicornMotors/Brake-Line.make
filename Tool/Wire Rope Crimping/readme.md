@@ -18,3 +18,5 @@ https://www.walmart.com/ip/Costway-16-Ton-Hydraulic-Wire-Terminal-Crimper-Batter
 [Muzata Hydraulic Steel Cable Crimper Tool Hints tips and tricks](https://youtu.be/-uqWuPEx8sI)
 
 [How to crimp wire rope ferrules using the YCP-240C hydraulic crimping tool](https://youtu.be/u82gPuXQuZw)
+
+[Hydraulic Swage Tool Kit - Hand Swaging Crimping Press for Stainless Steel Wire](https://www.ebay.com/itm/171162339649)
