@@ -8,7 +8,11 @@ https://www.youtube.com/results?search_query=make+your+own+parking+brake+cable
 
 # Stop Sleeve
 ## sch:
-https://www.google.com/search?q=stop+sleeve
+- https://www.google.com/search?q=stop+sleeve
+- https://www.youtube.com/results?search_query=stop+sleeve
+- https://www.youtube.com/results?search_query=stop+sleeve+crimp
 
 ## Guide
 [https://youtu.be/iEflhdrQp3U](https://youtu.be/iEflhdrQp3U)
+
+[How To: Use a Hand Swage Tool To Crimp Ferrules On Wire Balustrade | HAMMERSMITH](https://youtu.be/3To3xHKcTjc)
