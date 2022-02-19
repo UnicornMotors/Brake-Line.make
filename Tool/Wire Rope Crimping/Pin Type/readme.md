@@ -25,4 +25,5 @@ Comment:
 >he's using the GS Products https://www.gsproducts.co.uk/steel-wire-rope-hydraulic-crimping-and-swaging-crimping-tool/
 >which is the Chinese YQK-300 model 11 US Tons = 10 Metric Tons - manual - https://www.konel.ba/files/products/docs/YQK-300.pdf
 >but this re-badged TEMCo contains 32 die sets - https://temcoindustrial.com/temco-hydraulic-cable-lug-crimper-th0005-11-us-ton-6-awg-to-600-mcm.html
+
 -[comment: Youtube](https://www.youtube.com/watch?v=9_QWKB6-_MA&lc=UgwD6ABgCO_iiyYWOiF4AaABAg.9EvA2pKBPql9EyaywhqPd-&ab_channel=JonSmith)
